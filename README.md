@@ -41,7 +41,7 @@ Saya aktif di dunia **cybersecurity**, fokus pada:
 ---
 
 ## 📫 Kontak Saya
-- 📧 Email: [ahmadfarel272@gmail.com](mailto:ahmadfarel272@gmail.com)
+- 📧 Email: 
 - 📸 Instagram: [@farelaja231](https://www.instagram.com/farelaja231/)
 - 🌐 Blog/Write-up: [medium.com](https://medium.com/@ahmadfarel272)
 
